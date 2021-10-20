@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @YusPW
-- 📫 YT /
+- 👋 Hi, I’m Yus
+- 📫 YT/
 
 <!---
 woah
