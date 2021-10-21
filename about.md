@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yus
-- 📫 YT/
+- 📫 Twitter/SimplyCryptoYus
 
 <!---
 woah
